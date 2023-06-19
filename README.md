@@ -21,3 +21,4 @@ Please tell us your favorite IDOL
 * B小町
 * 欅坂46
 * Blackpink
+* Liella!
