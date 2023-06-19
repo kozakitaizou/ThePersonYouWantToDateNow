@@ -20,3 +20,4 @@ Please tell us your favorite IDOL
 * AKB48
 * B小町
 * 欅坂46
+* Blackpink
