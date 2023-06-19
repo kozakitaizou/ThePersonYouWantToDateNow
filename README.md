@@ -18,4 +18,5 @@ Please tell us your favorite IDOL
 * 765 MILLION ALLSTARS
 * 日向坂46
 * AKB48
+* B小町
 * 欅坂46
