@@ -23,3 +23,4 @@ Please tell us your favorite IDOL
 * Blackpink
 * Liella!
 * M!LK
+* 新内眞衣（乃木坂46）
