@@ -24,3 +24,4 @@ Please tell us your favorite IDOL
 * Liella!
 * M!LK
 * 新内眞衣（乃木坂46）
+* 最上静香
