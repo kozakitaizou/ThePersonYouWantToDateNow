@@ -22,3 +22,4 @@ Please tell us your favorite IDOL
 * 欅坂46
 * Blackpink
 * Liella!
+* M!LK
