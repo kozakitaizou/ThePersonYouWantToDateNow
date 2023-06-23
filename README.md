@@ -6,6 +6,7 @@ I want to date Tsubasa Honda!
 - Yuri Tsuchihashi  
 - Nanako Michiura
 - Yuri Tsuchihashi
+- Moe Iori
 - Saito Asuka
 - JJ Lin
 - Masami Nagasawa
