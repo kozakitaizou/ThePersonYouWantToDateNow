@@ -11,3 +11,4 @@ I want to date Tsubasa Honda!
 - JJ Lin
 - Masami Nagasawa
 - Moe Kamikokuryo
+- Takumi Katamura
