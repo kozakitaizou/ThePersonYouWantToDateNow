@@ -12,3 +12,4 @@ I want to date Tsubasa Honda!
 - Masami Nagasawa
 - Moe Kamikokuryo
 - Takumi Katamura
+- Kohei Takigami
