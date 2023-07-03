@@ -13,3 +13,4 @@ I want to date Tsubasa Honda!
 - Moe Kamikokuryo
 - Takumi Katamura
 - Kohei Takigami
+- Mamiko Noto
